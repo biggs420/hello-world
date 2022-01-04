@@ -1,3 +1,3 @@
 # hello-world
 things, stuff
-I am alone, and you are a faggit
+I am alone, and you are a bunch of faggits
